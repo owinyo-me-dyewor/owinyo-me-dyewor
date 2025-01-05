@@ -30,7 +30,7 @@
                                                                                                                                                                                                                        
                                                                                                                                                                                                                        
   - 🤔 I love sports and am interested in quantum technologies                                                                                                                                                         
-  - 💼 I study at school, I work on the backend, sometimes I experiment with the frontend and Swift xD                                                                                                                 
+  - 💼 I study at school xD                                                                                                                 
   - 📫 Email:----(listen, why do you need my email?)                                                                                                                                                                   
                                                                                                                                                                                                                        
                                                                                                                                                                                                                        
